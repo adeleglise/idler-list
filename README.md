@@ -16,3 +16,5 @@ http://www.kongregate.com/games/RevelBase/crafting-idle-clicker
 http://www.kongregate.com/games/Tukkun/anti-idle-the-game
 
 http://minmaxia.com/c2/
+
+http://candy-emperical.appspot.com/#/Prisoners
