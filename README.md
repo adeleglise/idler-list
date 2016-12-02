@@ -18,3 +18,11 @@ http://www.kongregate.com/games/Tukkun/anti-idle-the-game
 http://minmaxia.com/c2/
 
 http://candy-emperical.appspot.com/#/Prisoners
+
+http://orteil.dashnet.org/cookieclicker/
+
+https://swarmsim.github.io/#/
+
+https://trimps.github.io/
+
+http://cityinc.se/#/
