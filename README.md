@@ -29,3 +29,8 @@ http://cityinc.se/#/
 
 http://www.kongregate.com/games/Volch/endless-expansion
 
+http://shimage.net/megamiquest/en.html
+
+http://www.playprosperity.ca/
+
+https://www.reddit.com/r/incremental_games/wiki/list_of_incremental_games
