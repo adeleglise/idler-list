@@ -34,3 +34,11 @@ http://shimage.net/megamiquest/en.html
 http://www.playprosperity.ca/
 
 https://www.reddit.com/r/incremental_games/wiki/list_of_incremental_games
+
+http://www.houmotsuko.net/game/infiroad/index
+
+https://dogeminer2.com/play/?wow=1
+
+http://seiyria.com/Roguathia/
+
+http://deathraygames.com/play-online/star-hopper-crank/
