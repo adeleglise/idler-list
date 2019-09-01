@@ -50,3 +50,9 @@ https://sparticle999.github.io/SpaceCompany/
 http://alpha.junctiongate.com/
 
 https://omsi6.github.io/loops/
+
+https://aarextiaokhiao.github.io/Productive-Data/
+
+https://www.snowballinggames.com/galactic_2.0_beta/
+
+https://nagshell.github.io/elemental-inception-incremental/Historian/Historian.html
