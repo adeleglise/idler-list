@@ -42,3 +42,7 @@ https://dogeminer2.com/play/?wow=1
 http://seiyria.com/Roguathia/
 
 http://deathraygames.com/play-online/star-hopper-crank/
+
+https://pmotschmann.github.io/Evolve/
+
+https://sparticle999.github.io/SpaceCompany/
