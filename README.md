@@ -46,3 +46,7 @@ http://deathraygames.com/play-online/star-hopper-crank/
 https://pmotschmann.github.io/Evolve/
 
 https://sparticle999.github.io/SpaceCompany/
+
+http://alpha.junctiongate.com/
+
+https://omsi6.github.io/loops/
